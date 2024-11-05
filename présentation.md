@@ -7,9 +7,9 @@
 
 ## Expérience Professionnelle
 
-✈️ Je suis actuellement en alternance et j'occupe le poste de Gérant Informatique dans une entreprise de formation Aeroportuaire qui ce nomme **Aerogui Flight Formation**
+✈️ *Je suis actuellement en alternance et j'occupe le poste de Gérant Informatique dans une entreprise de formation Aeroportuaire qui ce nomme* **Aerogui Flight Formation**
 
-👨‍🏭 J'ai d'ailleurs aussi travailler en tant que Technicien de maintenance chez **Grand Paris Sud** <ins>2022<ins/>
+👨‍🏭 *J'ai d'ailleurs aussi travailler en tant que Technicien de maintenance chez* **Grand Paris Sud** <ins>2022<ins/>
 
 ## Hobbies 
 
