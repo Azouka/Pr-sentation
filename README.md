@@ -13,7 +13,7 @@
 
 ## Hobbies 
 
-🥊 à côté je suis un pratiquant de MMA, j'adore les arts martiaux :) 
+🥊 à côté je suis un pratiquant de MMA, j'adore les arts martiaux :) (et les jeux vidéo)
 <br>🎌 J'adore aussi les animes comme ce petit personnage sur ma pp qui ce nomme [Shikamaru](https://avatars.githubusercontent.com/u/129937393?v=4)
 
 ### Sur ce Git ?
